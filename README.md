@@ -12,7 +12,7 @@ Will update soon...
 
 ## Issues
 
-Cleaning of the captured images.(Biggest issue)
+Cleaning of the captured images.(BIGGEST ISSUE)
 
 
 
